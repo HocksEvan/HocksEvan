@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @HocksEvan
+- 👀 I’m interested in Computers and Music 
+- 🌱 I’m currently learning how to program professionally
+- 📫 How to reach me @Hocks_Evan (most Socials)
